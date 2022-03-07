@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @angelocodes
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning C language
+- 💞️ I’m looking to collaborate on some simple beginner projects and programs
+- 📫You can reach me on facebook as Angello Orieda
