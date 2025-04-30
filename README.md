@@ -36,7 +36,7 @@ Although I live in **Uganda**, I use a **U.S. bank account** for payout eligibil
 
 ## **Let’s Connect**
 - GitHub: [@angelocodes](https://github.com/angelocodes)
-- LinkedIn: [Angelo on LinkedIn](https://linkedin.com/in/b240a8241)
+- LinkedIn: [Angelo on LinkedIn](https://linkedin.com/in/ajika-angelo-b240a8241)
 - Email: ajikangelo@gmail.com
 
 ---
